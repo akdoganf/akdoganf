@@ -4,6 +4,12 @@
   </a>
 </h1>
 
+## 📊 Veri bilimi ilgilisi, 
+## 🔍 Araştırma odaklı, 
+## 👩🏻‍💻 Blog yazarı,
+## 🏃🏻‍♀️ Öğrenen'im.
+
+
 <img align='right' src="https://cdn.berksmbl.com/file/berksmbl/daftpunktocat-guy.gif" width="230">
 
 
