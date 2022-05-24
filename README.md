@@ -11,5 +11,4 @@
 
 <img align='right' src="https://cdn.berksmbl.com/file/berksmbl/daftpunktocat-guy.gif" width="130">
 
-### 📩 İletişim Kuralım:
 
