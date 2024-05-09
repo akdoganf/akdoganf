@@ -1,5 +1,5 @@
-## 📊 Veri bilimi ilgilisi, 
-## 🔍 Araştırma odaklı, 
+## 📊 İş Zekası Uzmanı, 
+## 🔍 Veri Bilimi İlgilisi, 
 ## 👩🏻‍💻 Blog yazarı ve
 ## 🏃🏻‍♀️ Tam zamanlı öğrenen;
 
